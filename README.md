@@ -7,7 +7,7 @@
 - 🤔 I’m looking for help with  programming advanced and its structure I seek to understand how it works, why, why and where to apply it
 - 💬 Ask me about program basic and mecatrhonics
 - 📫 How to reach me:Josuecibrian0@hotmail.com or cel-3323476113
-- 😄 Pronouns:Alberto(Beto)or chino
+- 😄 Pronouns:Alberto(Beto) or chino
 - ⚡ Fun fact:Videogames how mass efect and dragon age and red book of mistery,fantasy,Science fiction
 <!--
 **HEALT-CRIMES/HEALT-CRIMES** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
