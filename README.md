@@ -6,7 +6,7 @@
 - 👯 I’m looking to collaborate on with companies and jobs that constantly help me grow as programmed since I only have logic but I have not worked in a software company as such
 - 🤔 I’m looking for help with  programming advanced and its structure I seek to understand how it works, why, why and where to apply it
 - 💬 Ask me about program basic and mecatrhonics
-- 📫 How to reach me:Josuecibrian0@hotmail.com or cel-3323476113
+- 📫 How to reach me:Josuecibrian0@gmail.com or cel-3323476113
 - 😄 Pronouns:Alberto(Beto) or chino
 - ⚡ Fun fact:Videogames how mass efect and dragon age and red book of mistery,fantasy,Science fiction
 <!--
