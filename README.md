@@ -21,5 +21,5 @@
 - 💬 Ask me about program basic and mecatrhonics
 - 📫 How to reach me:Josuecibrian0@hotmail.com or cel-3323476113
 - 😄 Pronouns:Alberto(Beto)or chino
-- ⚡ Fun fact:Videogames   and  books of mistery,fantasy,Science fiction
+- ⚡ Fun fact:Videogames and books of mistery,fantasy,Science fiction
 -->
